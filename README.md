@@ -1,2 +1,2 @@
 # Walmart Bag Portfolio
-Walmart Bag Portfolio for builds of 16/10/2025
+Here is my portfolio of the day 16/10/2025
